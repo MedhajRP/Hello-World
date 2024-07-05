@@ -1,2 +1,2 @@
 # Hello-World
-hey deva, ID madhe mala vaachav
+Let's have some fun
